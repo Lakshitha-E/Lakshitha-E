@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **lakshitha.b.ekanayake@gmail.com**
 
-- ⚡ Fun fact **I think I am a data science student who somehow balances tuning a violin, designing graphics, and chasing Formula 1 thrills all at once!**
+- ⚡ Fun fact **I do edits for fun!**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
